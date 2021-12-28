@@ -1,4 +1,2 @@
-jdfnkjfhkjfhkfjd
-fdjkhfdjkhdfjhjdf
 # ram
 ram
